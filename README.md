@@ -1,0 +1,1 @@
+# AI-Q2-Solved-assignments
